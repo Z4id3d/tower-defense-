@@ -12,8 +12,6 @@
 
 ![alt text](https://scontent.ftrd4-1.fna.fbcdn.net/v/t1.15752-9/94337773_1653005991532041_2923582193982767104_n.png?_nc_cat=107&_nc_sid=b96e70&_nc_ohc=8SvFxtQXzpgAX__6SlK&_nc_ht=scontent.ftrd4-1.fna&oh=145e3769c486797d11d5e94fea758a27&oe=5ED21049)
 
-![alt text](https://scontent.ftrd4-1.fna.fbcdn.net/v/t1.15752-9/94483493_1121526701541241_701574390881452032_n.png?_nc_cat=101&_nc_sid=b96e70&_nc_ohc=6vysSwqfAQsAX_VKi3H&_nc_ht=scontent.ftrd4-1.fna&oh=53a58845baf937485e26f57cee706821&oe=5ECEB9BB)
-
 ![alt text](https://scontent.ftrd4-1.fna.fbcdn.net/v/t1.15752-9/95067741_236956427663481_6944453529079644160_n.png?_nc_cat=101&_nc_sid=b96e70&_nc_ohc=Z9jHy57jfrQAX8cw00I&_nc_ht=scontent.ftrd4-1.fna&oh=b67f00ae556f0d51f10842762c16da42&oe=5ECFD788)
 
 ![alt text](https://scontent.ftrd4-1.fna.fbcdn.net/v/t1.15752-9/94483493_1121526701541241_701574390881452032_n.png?_nc_cat=101&_nc_sid=b96e70&_nc_ohc=6vysSwqfAQsAX_VKi3H&_nc_ht=scontent.ftrd4-1.fna&oh=53a58845baf937485e26f57cee706821&oe=5ECEB9BB)
